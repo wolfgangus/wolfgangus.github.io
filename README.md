@@ -1,5 +1,0 @@
-# wolfgangus.github.io
-
-
-
-Placeholder.
